@@ -17,3 +17,6 @@ Voice and text applications will become a key function as a part of brand omnich
 TonkaBI is the expert in Innovative Data Technology, especially for the Insurance AI Industry! We understand what challenges insurance companies like yours face on a daily basis and we’ll be with you every step of the way, working with you to make this process as effective and as efficient as possible. TonkaBI is a living breathing organism, in all aspects, and if something needs to be adjusted, reorganized or rebuilt, this is something TonkaBI knows how to do this, do it right and do it quickly.
 
 Source: TonkaBI is the expert in Innovative Data Technology, especially for the Insurance Industry! We understand what challenges insurance companies like yours face on a daily basis, and we’ll be with you every step of the way, working with you to make this process as effective and as efficient as possible.
+
+Know more about it at : www.tonkabi.com/artificial-intelligence
+
